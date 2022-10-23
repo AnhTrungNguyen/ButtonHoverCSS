@@ -2,6 +2,6 @@
 
 Hello everyone !
 
-Button Beatiful 
+Button Beautiful 
 
 LET'S GO WITH ME !
